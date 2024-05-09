@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SwartBergie
+- 👀 I’m interested in hacks, gaming  
+- 🌱 I’m currently learning at a pilot school..
+- ⚡ Fun fact: i dont eat any seafood
